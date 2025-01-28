@@ -1,5 +1,3 @@
-# 💫 About Me:
-Sou estudante do curso de ciência da computação, estou<br>a procura de um estágio.
 
 
 ## 🌐 Socials:
